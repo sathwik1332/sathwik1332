@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **sathwiknavuri1332@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nvNirb4jeInZ8a09FQbTzyXh3pHxIXGE/view?usp=drive_link](https://drive.google.com/file/d/1nvNirb4jeInZ8a09FQbTzyXh3pHxIXGE/view?usp=drive_link)
-
 - ⚡ Fun fact **I love movies**
 
 <h3 align="left">Connect with me:</h3>
